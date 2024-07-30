@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0247550d-008b-473c-90f2-2f8a8766d7fd)Boas vindas ao meu perfil 
+Boas vindas ao meu perfil 
 
 Meu nome é Murilo Varussa
 
