@@ -15,5 +15,5 @@ murilo.varussa.oliveira@esscola.pr.gov.br
 @muvarussa
 
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fshitposting-gifs&psig=AOvVaw1FqlT3AV4ZCSJBvUq2gfGE&ust=1722435684636000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCJi72pr8zocDFQAAAAAdAAAAABAK)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fpt.quizur.com%2Fquiz%2Fque-shit-post-es-tu-TZkn&psig=AOvVaw2T5PXou5T9rJVrEOlqbwkL&ust=1722436152116000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIiT_uv8zocDFQAAAAAdAAAAABAEhttps://www.google.com/url?sa=i&url=https%3A%2F%2Fpt.quizur.com%2Fquiz%2Fque-shit-post-es-tu-TZkn&psig=AOvVaw2T5PXou5T9rJVrEOlqbwkL&ust=1722436152116000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCIiT_uv8zocDFQAAAAAdAAAAABAE)
 
